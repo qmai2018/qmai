@@ -1,0 +1,2 @@
+# qmai
+Private ownership
